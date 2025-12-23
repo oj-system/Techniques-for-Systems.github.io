@@ -62,11 +62,22 @@ Start
 
 ### **Video Tutorials (Best for Visual Learners)**
 
-- **Container Exercise:** [The CTAD Clinic - Container Exercise](https://www.youtube.com/watch?v=eYI1d9dE7Vw) — Dr. Mike Lloyd shows how to build, fill, and safely close your container.
+- **Container Exercise:** [Guided EMDR Container Exercise - Short Version](https://www.youtube.com/watch?v=dN9mG4SovIE) — Mindful exercise supported by the guidance of a Clinician. Helpful for containing distress until in a better position to address the distressing content as needed.
+
+- [Guided EMDR Container Exercise - Indepth Version](https://www.youtube.com/watch?v=CdFQwL08Ydw) - Shows how to build, fill, and safely close your container. Touches on how practical uses and considerations. 
 
 - **Safe Place Exercise:** [Therapy in a Nutshell - Creating a Safe Place](https://www.youtube.com/watch?v=Isw37iCwMCg) — Step-by-step guided visualization with calming narration.
 
-- **Internal Communication:** [The CTAD Clinic - Improving Internal Communication](https://www.youtube.com/watch?v=7X5y_2x9_3E) — Learn how to start "talking" to parts, including the meeting room concept.
+- [Guided EMDR Safe Place Exercise - Indepth Version](https://www.youtube.com/watch?v=8FEGxsmZItw) - Mindful guidance in how to use this technique by a Clinician trained in EMDR. Includes 'butterfly hug/tapping' and affirmations.
+
+- **Internal Communication Step 1-4:** [1. The CTAD Clinic - Why is my internal communication (in OSDD or DID) not working?](https://www.youtube.com/watch?v=ZJAGtxpuYig) — Troubleshooting internal “blankness” by assessing your own intent and potential fear of the diagnosis.
+
+- [2. The CTAD Clinic - Understanding, decoding and managing OSDD communication](https://www.youtube.com/watch?v=gfFafH5zUG4) — Learning to listen for and decode non-verbal sensory signals e.g. emotions, hunger, physical sensations.
+
+- [3. The CTAD Clinic - The Process of 'checking in'](https://youtu.be/rJN8_h3-qns) — Establishing basic outreach through “virtual notes” and consistent internal presence so as to build a bridge for internal communication.
+
+- [4. The CTAD Clinic - Developing communication in DID or OSDD through understanding alters/parts](https://www.youtube.com/watch?v=LspGANv-PH4) — Advanced cooperation by moving parts from “trauma jobs” into personal interests.
+
 
 ### **Visual Graphics & Worksheets**
 
