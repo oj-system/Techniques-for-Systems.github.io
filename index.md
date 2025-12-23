@@ -1,8 +1,3 @@
----
-layout: home
-title: 8 Core Techniques
----
-
 | Technique | What You Do | Why It Works |
 |-----------|------------|-------------|
 | **The Container** | Visualize a secure object (vault, box, safe) to temporarily store overwhelming memories or feelings until you're ready to process them in therapy. | **Containment & Affect Regulation** – Prevents emotional flooding. |
