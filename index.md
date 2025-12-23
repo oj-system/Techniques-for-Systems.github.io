@@ -172,6 +172,6 @@ If any technique reliably increases destabilization (more switching, panic, self
 
 ---
 
-**Remember:** These techniques are not "cures." They are *stabilization tools* that help you move from involuntary, chaotic dissociation to *conscious, intentional* use of your natural dissociative capacity. Your mind is incredibly sophisticated. CTAD Clinic's Dr. Mike Lloyd recommendss working with the system's dissociative talents and not against. Generally if we push too hard then our system will rebound and let us know! Our minds are good at dissociating so use it to your advantage :)
+**Remember:** These techniques are not "cures." They are *stabilization tools* that help you move from involuntary, chaotic dissociation to *conscious, intentional* use of your natural dissociative capacity. Your mind is incredibly sophisticated. CTAD Clinic's Dr. Mike Lloyd recommends working with the system's dissociative talents and not against. Generally if we push too hard then our system will rebound and let us know! Our minds are good at dissociating so use it to your advantage :)
 
 *Last updated: December 2025 by OJ-System*
