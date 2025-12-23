@@ -150,11 +150,11 @@ Key Skill Tip: If you have younger parts who cannot read or write, encourage the
 
 ### **Patient-Led Resources**
 
-- **Galaxy Bar Self Help Directory:** https://www.dis-sos.com/intentional-switching-did/ — Written by people with OSDD/DID. Covers many common issues systems face.
+- **Galaxy Bar Self Help Directory:** (https://docs.google.com/document/d/1TsmNtYZAzgl8E8pIKAi_azHVHcqnQrKweVAabN-wbpk/edit?usp=sharing) — Written by people with OSDD/DID. Covers many common issues systems face.
 
-- **ISSTD Patient Resources:** https://www.isst-d.org/public-resources-home/ — Official organization for dissociative disorder specialists.
+- **ISSTD Patient Resources:** (https://www.isst-d.org/public-resources-home/) — Official organization for dissociative disorder specialists.
 
-- **CTAD Clinic Youtube Library:** https://www.youtube.com/@thectadclinic - Senior Clinical Psychologist Specialising in treating OSDD/DID. Also provides training to clinicians. A strong advocate for systems with a reasonable approach to healing. 
+- **CTAD Clinic Youtube Library:** (https://www.youtube.com/@thectadclinic) - Senior Clinical Psychologist Specialising in treating OSDD/DID. Also provides training to clinicians. A strong advocate for systems with a reasonable approach to healing. 
 
 ---
 
