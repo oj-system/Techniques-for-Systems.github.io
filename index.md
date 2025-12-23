@@ -1,7 +1,4 @@
-# Techniques-for-Systems.github.io
-Conscious Modulation of Dissociative States/Parts to help live with OSDD/DID.
-
-# Techniques for Conscious Modulation of Dissociative States
+# Techniques for Conscious Modulation of Dissociative States in OSDD/DID
 
 ## 8 Core Techniques
 
