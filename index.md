@@ -1,6 +1,7 @@
-
-
-## 8 Core Techniques
+---
+layout: home
+title: 8 Core Techniques
+---
 
 | Technique | What You Do | Why It Works |
 |-----------|------------|-------------|
