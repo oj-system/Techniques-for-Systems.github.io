@@ -1,4 +1,6 @@
-# 8 Core Techniques
+# Conscious Modulation of Dissociative States/Parts for Living Well with OSDD/DID
+
+## 8 Core Techniques
 
 | Technique | What You Do | Why It Works |
 |-----------|------------|-------------|
