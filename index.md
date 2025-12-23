@@ -71,7 +71,7 @@ Start
 ### **Visual Graphics & Worksheets**
 
 - **Understanding Parts & The Dimmer Switch:** [Janina Fisher's Flip Chart](https://janinafisher.com/flip-chart/) (Some diagrams may be found freely online by using google images) — Industry-standard diagrams showing how to "blend" with or "unblend" from a part. 
-Unblending Video here - (https://www.youtube.com/watch?v=88HfI2MgDms)
+Unblending Video - [Janina Fisher: How to Work with Resistance, Blending & Parts in Trauma Therapy](https://www.youtube.com/watch?v=88HfI2MgDms)
 
 - **5-4-3-2-1 Grounding Guide:** [Grounding Techniques PDF](https://academicsuccess.ucf.edu/sarc/wp-content/uploads/sites/31/2020/12/grounding-techniques.pdf) — Simple visual checklist; keep on your phone.
 
@@ -81,7 +81,7 @@ Unblending Video here - (https://www.youtube.com/watch?v=88HfI2MgDms)
   - **Chapter 7:** Safe Place (detailed script & worksheets)
   - **Chapter 10:** Container (detailed script & worksheets)
   - **Chapter 16:** Internal Meeting Room (detailed script & worksheets)
-   *Open copy of book here: https://drive.google.com/file/d/1lQ7QytOmE6Xi5iJEbGo-yw4oa996XDuf/view?usp=sharing*
+   *Open copy of book: [Coping with Trauma-Related Dissociation: Skills Training for Patients and Therapists](https://drive.google.com/file/d/1lQ7QytOmE6Xi5iJEbGo-yw4oa996XDuf/view?usp=sharing)*
 
 ### Where to Learn Dual Awareness
 
